@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @urfavoritegift
+- 👀 I’m interested in programing, math, BOOKS,
+-  solving problems, AI, lego and 
+- 🌱 I’m about learning CS and alot af things
+- 😄 Pronouns: she/her/هي
+- ⚡ Fun fact: aaaaaa no idea tbh
